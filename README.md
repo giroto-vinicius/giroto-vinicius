@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Vinicius Kumizaki Giroto 📈🖋📓
+## Welcome to Vinicius Kumizaki Giroto's profile 📈🖋📓
 
  <div>
    <a href="https://github.com/giroto-vinicius">
